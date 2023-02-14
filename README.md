@@ -1,7 +1,7 @@
 # Arcane
  Serie de TV
 ## Sinopsis
-Con las dispares ciudades de Piltover y Zaun como telón de fondo🎭, dos hermanas luchan en bandos opuestos de una guerra entre tecnologías mágicas y creencias enfrentadas.😨
+Con las dispares ciudades de Piltover y Zaun como telón de fondo :dango: , dos hermanas luchan en bandos opuestos de una guerra entre tecnologías mágicas y creencias enfrentadas.😨
 ## Opinión
 * Se genera una gran conexión con el público.❤️
 * Los personajes son memorables.👌
